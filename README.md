@@ -1,5 +1,7 @@
 # 💫 About Me:
-Assalamu Alaikum, I'm Asif Iqbal (aka-assB0T), the founder of techif.store. My company aims to ease tech terms to general audience as well as endorse genuine Tech Brands.
+𝙔𝙤𝙪𝙧 𝙉𝙚𝙞𝙜𝙝𝙗𝙤𝙧, 𝙎𝙖𝙫𝙞𝙤𝙧, 𝙏𝙧𝙚𝙣𝙙𝙨𝙚𝙩𝙩𝙚𝙧.
+
+https://asifiqbal.info
 
 
 ## 🌐 Socials:
